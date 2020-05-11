@@ -1,8 +1,4 @@
-sars-cov-2 realtime data
-====
 
-小说
------
 > 
 >             庚子疫记
 > 
